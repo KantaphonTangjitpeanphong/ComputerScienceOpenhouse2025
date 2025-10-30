@@ -1,2 +1,2 @@
 # ComputerScienceOpenhouse2025
-i just store files here
+ใครอ่านเป็นเก
